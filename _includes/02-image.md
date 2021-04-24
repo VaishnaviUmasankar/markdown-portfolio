@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+https://static.toiimg.com/photo/msid-77612938/77612938.jpg [GANESHA]
