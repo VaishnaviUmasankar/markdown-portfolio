@@ -1,1 +1,17 @@
-Replace this with a list of your favorite things.
+1. FAV ICE-CREAM FLAVOURS 🍨
+   1. BUTTERSCOTCH
+   2. ITALIAN DELIGHT
+   3. VANILLA
+   4. COOKIES AND CREAM
+2. FAVORITE COLOURS 🌸
+   1. NAVY BLUE
+   2. PURPLE
+   3. SILVER
+   4. DARK BRONZE
+3. EMOJI'S
+   1. 😄
+   2. 🖤
+   3. 💩
+4. MY FAV PEOPLE
+   1. MY FAMILY 👨‍👩‍👧‍👧
+   2. FRIENDS 💓
